@@ -1,1 +1,1 @@
-Materi mata pelajaran PKK Kelas 12 SMKS Al Ma'mun
+Materi mata pelajaran PKK Kelas 12 SMKS Al Mamun
